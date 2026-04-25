@@ -10,4 +10,4 @@
 
  [.✦ ݁˖ atabook](https://r0cket.atabook.org/) +  [.✦ ݁˖ straw page](https://milkystarss.straw.page/) + [.✦ ݁˖ pronouns page](https://en.pronouns.page/@rockeet)
 
- ⠀︵ . if you're under 14-, please don't befriend me, thanks!! (interactions are fine) ୭ . w2i !!!
+ ⠀︵ . if you're under 14-, please DON'T befriend me, thanks!! (interactions are fine) ୭ . w2i !!!
