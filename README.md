@@ -8,6 +8,6 @@
  !! : PLEASE HEAVY DNI if you hate tree or black hole / this also counts astrobiology
 ────────────────────────────୨ৎ──────────────────────────
 
- [.✦ ݁˖ atabook](https://r0cket.atabook.org/) +  [.✦ ݁˖ straw page](https://milkystarss.straw.page/) / [.✦ ݁˖ pronouns page](https://en.pronouns.page/@rockeet)
+ [.✦ ݁˖ atabook](https://r0cket.atabook.org/) +  [.✦ ݁˖ straw page](https://milkystarss.straw.page/) / [.✦ ݁˖ pronouns cc](https://pronouns.cc/@astr0biologyy_)
 
  ⠀︵ . if you're under 14-, please DON'T befriend me, thanks!! (interactions are fine) ୭ . w2i !!!
