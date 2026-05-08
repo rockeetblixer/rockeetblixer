@@ -7,7 +7,7 @@
  
  !! : PLEASE HEAVY DNI if you hate tree or black hole / this also counts astrobiology
 <img width="540" height="31" alt="dd291e30" src="https://github.com/user-attachments/assets/473c72d5-c227-4c8e-8781-7d3b2abd9d03" />
- [.✦ ݁˖ atabook](https://r0cket.atabook.org/) +  [.✦ ݁˖ straw page](https://milkystarss.straw.page/) / [.✦ ݁˖ rentry](https://rentry.co/astrobiol0gyy)
+ [.✦ ݁˖ atabook](https://r0cket.atabook.org/) +  [.✦ ݁˖ straw page](https://milkystarss.straw.page/) / [.✦ ݁˖ rentry](https://rentry.co/TREEXBLACKH0LE)
 
  ⠀︵ . if you're under 14-, please DON'T befriend me, thanks!! (interactions are fine) ୭ . w2i !!!
 
